@@ -1,1 +1,2 @@
 # Fernando-Boudourian-wealth-management-en-la-era-digital
+El wealth management evolucionó hacia un modelo más ágil e inteligente. Ya no se trata solo de inversiones, sino de gestionar riesgos, estructurar estrategias fiscales y optimizar la toma de decisiones con tecnología avanzada. El acceso a datos y la automatización permiten crear soluciones personalizadas para cada cliente, garantizando un asesoramiento patrimonial más eficiente y sostenible.
